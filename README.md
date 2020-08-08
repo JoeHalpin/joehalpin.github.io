@@ -1,1 +1,0 @@
-# joehalpin.github.io
